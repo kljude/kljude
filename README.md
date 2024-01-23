@@ -6,6 +6,6 @@
 - 🤔 I’m looking for help with understanding AI
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: I am neurodiverse. Security is my special interest.
-  I'm told I can be kind of annoying. Pls be assured this is not deliberate. I likely just have different brain wiring to you. Please dont exclude me (just) because of this and pls be kind/constructive. 
+  I'm told I can be kind of annoying. Pls be assured this is not deliberate. I likely just have different brain wiring to you. Please dont exclude me because of this and pls be kind/constructive where possible. 
   
 
